@@ -58,4 +58,4 @@ Changes to our Privacy Policy. We may revise this Privacy Policy from time to ti
 
 6. CONTACT US
 If you have any questions about our privacy practices or this Privacy Policy, or to exercise your rights detailed in this Privacy Policy, please contact us at:
-Email: funwolfflol@gmail.com
+Email: ferretgamecontact@gmail.com
